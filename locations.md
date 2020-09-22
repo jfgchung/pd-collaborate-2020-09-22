@@ -1,1 +1,1 @@
-# Where are we all from? 🌍
+# Where are we all from? 🌏
