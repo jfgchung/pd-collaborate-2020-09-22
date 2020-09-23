@@ -2,3 +2,4 @@
 Little Rock, AR  
 Lititz, PA   
 New York, NY 
+West Hartford, CT 
